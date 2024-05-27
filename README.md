@@ -40,7 +40,7 @@
 	My Facebook Account ->
 	<a href="https://www.facebook.com/swordigo.swordslush?mibextid=rS40aB7S9Ucbxw6v" style="color: black;">Sany🚀</a></h3></div>
 
-<img align="center" src="https://i.imgur.com/wovTalh.jpeg"/>
+<img align="center" src="https://i.imgur.com/E4vSKhT.jpeg"/>
 
 
 🔹MR.SANNY
